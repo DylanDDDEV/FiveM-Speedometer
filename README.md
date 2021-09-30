@@ -11,3 +11,6 @@
 discord.gg/dddev / Dylan.DD#0328
 
 DDDEV OT
+
+### LEARN MORE ABOUT ME
+http://dylandd.com/
